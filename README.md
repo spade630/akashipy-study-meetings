@@ -1,0 +1,1 @@
+# akashipy-study-meetings
